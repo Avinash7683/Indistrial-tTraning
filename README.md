@@ -1,1 +1,1 @@
-# Indistrial-tTraning
+# Indistrial-Traning
